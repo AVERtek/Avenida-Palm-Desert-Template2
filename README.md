@@ -1,1 +1,2 @@
-# Avenida-Palm-Desert-Template2
+# Avenida Palm Desert Events
+Professional Referral Program
